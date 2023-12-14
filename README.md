@@ -7,7 +7,7 @@
 
 **:man: 已经助力1600W+用户加速全球网络！**
 
-**:arrow_double_down: [iOS 版本链接](https://share.128vpn.vip/xgvpn.html?t=t3gu23za)**
+**:arrow_double_down: [iOS 版本链接](https://apps.apple.com/cn/app/%E7%8C%8E%E8%B1%B9%E4%B8%80%E9%94%AE%E7%95%85%E6%B8%B8%E5%8A%A0%E9%80%9F%E5%99%A8vpn/id6463588302)**
 
 **:globe_with_meridians: [访问官方网站](https://share.128vpn.vip/xgvpn.html?t=8u5v7led)** 
 - - - -
@@ -16,6 +16,6 @@
 #### :arrow_double_down: [Android 版本.APK](http://share.456vpn.vip/xgvpn.html?t=u5q6ok55)
 ---
 ### 免费福利
-**:gift: 下载猎豹加速器，免费使用！**
+**:gift: 下载猎豹极速加速器，免费使用！**
 
 **:gift: 填写朋友 ID，还能额外领福利！**
